@@ -1,4 +1,4 @@
 ## Seja bem vindo (a) 😘
-**Me chamo Carla** e aqui estão alguns dos meus projetos
+**Me chamo Carla** e aqui ficarão alguns dos meus projetos.
 
-!{}(https://tenor.com/bNSmR.gif) 
+![](https://media1.tenor.com/m/dscLHvz8KlMAAAAC/matue-pelado.gif) 
